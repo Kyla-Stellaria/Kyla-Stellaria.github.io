@@ -1,8 +1,14 @@
-# Welcome to Kyla-Stellaria.github.io
+## Welcome to Kyla-Stellaria.github.io
 ---
-My **Favorite** *Stuff*
-- Anime
-- K-Pop
-- Ice Cream
+**My Hobbies**
 
-![Treasure KPop](https://mb.com.ph/wp-content/uploads/2022/02/66788.jpeg)
+-Drawing 
+-Writing Stories
+-Cooking
+-Listening to music
+-Singing
+---
+*Favorite  P-pop Groups*
+![ALAMAT](https://user-images.githubusercontent.com/118173958/202086306-d9aad824-0ca9-4524-8340-e37d9754fa64.png)
+![SB19](https://user-images.githubusercontent.com/118173958/202086593-724103b6-86f8-43f4-8eed-feb751351ec8.png)
+---
