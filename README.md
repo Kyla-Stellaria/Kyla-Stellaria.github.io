@@ -64,11 +64,11 @@ Given their strong foundation and versatility, the group is always experimenting
 --------------------------------------------------------------------------
 Favorite Anime :
 Spy X Family 1&2:<br>
-https://youtube.com/playlist?list=PLFyTtoGG2UkrrcrfYqqnsM59rh23u3Q3U<br>
-https://youtube.com/playlist?list=PLFyTtoGG2Ukqqbjwc_nxG6MolgFvZV5O5<br>
+[Spy X Family 1](https://youtube.com/playlist?list=PLFyTtoGG2UkrrcrfYqqnsM59rh23u3Q3U)<br>
+[Spy X Family 2](https://youtube.com/playlist?list=PLFyTtoGG2Ukqqbjwc_nxG6MolgFvZV5O5)<br>
 
 --------------------------------------------------------------------------
 Animated stories that I watch when I got bored:<br>
-https://youtube.com/playlist?list=PLZNpY-YFF8o-AlQ30yoXT9KeZwWbi1cXa<br>
+[MSA in Leaflent artstyle](https://youtube.com/playlist?list=PLZNpY-YFF8o-AlQ30yoXT9KeZwWbi1cXa)<br>
 (Artstyle made by Filipino animators)<br>
 
