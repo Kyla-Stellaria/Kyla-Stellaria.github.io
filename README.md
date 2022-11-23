@@ -62,8 +62,13 @@ Given their strong foundation and versatility, the group is always experimenting
 
 
 --------------------------------------------------------------------------
-![cat](https://user-images.githubusercontent.com/118173958/203474819-02b4447a-f0c2-405b-8885-5e661e63f8f3.png)
-
+Favorite Anime :
+Spy X Family 1&2:
+https://youtube.com/playlist?list=PLFyTtoGG2UkrrcrfYqqnsM59rh23u3Q3U
+https://youtube.com/playlist?list=PLFyTtoGG2Ukqqbjwc_nxG6MolgFvZV5O5
 
 --------------------------------------------------------------------------
-![duck](https://user-images.githubusercontent.com/118173958/203475782-bd572978-4210-4b65-b018-75436047db40.png)
+Animated stories that I watch when I got bored:
+https://youtube.com/playlist?list=PLZNpY-YFF8o-AlQ30yoXT9KeZwWbi1cXa
+(Artstyle made by Filipino animators)
+
