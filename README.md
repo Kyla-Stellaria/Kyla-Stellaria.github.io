@@ -12,6 +12,14 @@
 
 -Singing
 
+-Digital art
+
+---
+Fun Facts:
+-started drawing anime since 2018
+-started writing stories since 2019
+-started digital arts in 2021
+-duck lover 
 ---
 *Favorite  P-pop Groups*
 
@@ -54,6 +62,8 @@ Given their strong foundation and versatility, the group is always experimenting
 
 
 --------------------------------------------------------------------------
-![cat](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.pinterest.com%2Fpin%2F677651075181513682%2F&psig=AOvVaw0h3y0NtbfFEmipFquJynMg&ust=1669267525338000&source=images&cd=vfe&ved=0CBAQjRxqFwoTCJjn06HIw_sCFQAAAAAdAAAAABAD)
+![cat](https://user-images.githubusercontent.com/118173958/203474819-02b4447a-f0c2-405b-8885-5e661e63f8f3.png)
+
 
 --------------------------------------------------------------------------
+![duck](https://user-images.githubusercontent.com/118173958/203475782-bd572978-4210-4b65-b018-75436047db40.png)
