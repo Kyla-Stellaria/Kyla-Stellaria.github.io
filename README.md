@@ -16,10 +16,10 @@
 
 ---
 Fun Facts:
--started drawing anime since 2018
--started writing stories since 2019
--started digital arts in 2021
--duck lover 
+-started drawing anime since 2018<br>
+-started writing stories since 2019<br>
+-started digital arts in 2021<br>
+-duck lover<br>
 ---
 *Favorite  P-pop Groups*
 
